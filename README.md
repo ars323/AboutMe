@@ -42,7 +42,7 @@ _Diploma: Advanced Regents_   **September 2015– June 2019**
 - Competed in business competitions at the regional, state, and international levels.
 - _First Place_, Learn and Earn Project, New York State Competition, 2019
 
-- --Created and presented a twenty-page manual on gaining awareness and raising money for POB DECA.
+- Created and presented a twenty-page manual on gaining awareness and raising money for POB DECA.
 
 - Top 10 Overall, Business Services, New York State Competition, 2017
  
